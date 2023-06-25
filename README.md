@@ -1,1 +1,0 @@
-# Smart-Residence-Vlad-Patrulescu
